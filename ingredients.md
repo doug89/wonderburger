@@ -1,2 +1,5 @@
 top bun
+Beef patty (ADDED BY DOUNG89WONDER)
+Ketchup (ADDED BY DOUNG89WONDER)
+Salt (ADDED BY DOUNG89WONDER2)
 buttom bun
